@@ -8,7 +8,7 @@ hey ! i am Alex OR Ren (whatever you like the most !) . 17 y.o . sp46so1 evfl rl
 i am nonbinary and i prefer they/he as my prns!
 i just threw here all the stamps i could find don't beat me up pls
 
-my fandoms are : mcyt (mainly uusmp , a bit lifesteal and moneysmp , i'm a newgen) . hannibal . danganronpa . aregect arg . disventure camp . south park . pjsk . mouthwashing . dead plate (and other games from this studio) ... i also like bittersweet (poorly explained oc lore series by @jvrozx or AJ on Tik Tok)
+my fandoms are : mcyt (mainly uusmp , a bit lifesteal and moneysmp , i'm a newgen) . hannibal . danganronpa . aregect arg . disventure camp . south park . pjsk . mouthwashing . brokeback mountain . dead plate (and other games from this studio) ... i also like bittersweet (poorly explained oc lore series by @jvrozx or AJ on Tik Tok)
 
 . i also know (but not in the fandom anymore for reasons) alnst , tadc , yttd , cookie run , omori , milgram , creepypasta , the walten files , mandela catalogue , dandy's world , squid game , phighting , the music freaks , countryhumans , stranger things . so if u ever wanna discuss that pls feel free ...
 
