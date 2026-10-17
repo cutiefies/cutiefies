@@ -3,7 +3,7 @@
 
 ![](https://64.media.tumblr.com/f3add64bef7ac5c3c42ae87a202d6100/2fec89860f4147bc-8f/s250x400/704f40c9d740b8ec357d75ebb5606f58f5421918.gifv)
 
-hey ! i am Alex OR Ren (whatever you like the most !) . 17 y.o . sp46so1 evfl rluai mel-phleg .
+hey ! i am Aiden OR Ren (whatever you like the most !) . 17 y.o . sp46so1 evfl rluai mel-phleg .
 
 i am nonbinary and i prefer they/he as my prns!
 i just threw here all the stamps i could find don't beat me up pls
