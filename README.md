@@ -3,8 +3,21 @@
 
 ![](https://64.media.tumblr.com/f3add64bef7ac5c3c42ae87a202d6100/2fec89860f4147bc-8f/s250x400/704f40c9d740b8ec357d75ebb5606f58f5421918.gifv)
 
-              hey ! i am Alex OR Ren (whatever you like the most !) . 17 y.o . sp46so1 evfl rluai mel-phleg
+              hey ! i am Alex OR Ren (whatever you like the most !) . 17 y.o . sp46so1 evfl rluai mel-phleg .
+              i am nonbinary and i prefer they/he as my prns!
               i just threw here all the stamps i could find don't beat me up pls
+              my fandoms are : mcyt (mainly uusmp , a bit lifesteal and moneysmp , i'm a newgen) . hannibal . danganronpa
+              . aregect arg . disventure camp . south park . pjsk . mouthwashing . dead plate (and other games from this studio)
+              i also like bittersweet (poorly explained oc lore series by @jvrozx or AJ on Tik Tok)
+              . i also know (but not in the fandom anymore for reasons) alnst , tadc , yttd , cookie run ,
+              omori , milgram , creepypasta , the walten files , mandela catalogue , dandy's world , squid game , phighting ,
+              the music freaks , countryhumans , stranger things . so if u ever wanna discuss that pls feel free ...
+              i also want friends (wink wink)
+              i already mentioned that but PLEASE tcoaal , tcc fans DNI (and ivantill fans who reduce them to fragile twink Till
+              and buff alpha Ivan I HATE YOU)
+              uhh and I'd say i'm pretty much chill and friendly but i can be shy/quiet sometimes .. if i don't like something i
+              will tell you anyways yeah i can be pretty short tempered and easily annoyed
+              also i'm will graham , ena shinonome and stan marsh irl
               
 ![](https://64.media.tumblr.com/2b1ce13c42fb400fbfa1d7bdb4840504/f003ef0b836ae4d5-f9/s100x200/c18f3bd768c583102ca051fad77c418139b71153.gifv)
 ![](https://64.media.tumblr.com/c4e71da4f94ceef8d45a6d9275b8a263/f003ef0b836ae4d5-c5/s100x200/ff419e81243dfddffd6a3021e17162db420bccd6.gifv)
