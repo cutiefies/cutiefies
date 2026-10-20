@@ -8,7 +8,7 @@ hey ! i am Aiden OR Ren (whatever you like the most !) . 17 y.o . sp46so1 evfl r
 i am nonbinary and i prefer they/he as my prns!
 i just threw here all the stamps i could find don't beat me up pls
 
-my fandoms are : mcyt (mainly uusmp , a bit lifesteal and moneysmp , i'm a newgen) . hannibal . danganronpa . aregect arg . disventure camp . south park . pjsk . mouthwashing . brokeback mountain . dead plate (and other games from this studio) ... i also like bittersweet (poorly explained oc lore series by @jvrozx or AJ on Tik Tok)
+my fandoms are : mcyt (mainly uusmp , a bit lifesteal and moneysmp , i'm a newgen) . hannibal . danganronpa . aregect arg . disventure camp . south park . pjsk . mouthwashing . brokeback mountain . saw (movie) . dead plate (and other games from this studio) ... i also like bittersweet (poorly explained oc lore series by @jvrozx or AJ on Tik Tok)
 
 . i also know (but not in the fandom anymore for reasons) alnst , tadc , yttd , cookie run , omori , milgram , creepypasta , the walten files , mandela catalogue , dandy's world , squid game , phighting , the music freaks , countryhumans , stranger things . so if u ever wanna discuss that pls feel free ...
 
@@ -35,5 +35,4 @@ also i'm will graham , ena shinonome and stan marsh irl
 ![](https://64.media.tumblr.com/c4fd2be0c4460dfadd3c5d0eba1a429f/1445786620fd6c4d-ee/s250x400/03f4cc8f2a562202e6faefbe6f0077e16ed047ec.gifv)
 ![](https://64.media.tumblr.com/6ba95de22ebcdfc5a522d105d35a3d1b/0a6faef86a9aff65-ea/s640x960/d4b4677fa7855b5b53bbf5420c374669de39cea1.gifv)
 ![](https://64.media.tumblr.com/9e9dfe31f2560e4444766eca325cb0a1/51292b580eb2b349-b2/s1280x1920/ffec68c9aec2f9244f7e5be227441efc4b88d37d.gifv)
-
 big ahh saps
