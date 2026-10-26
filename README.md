@@ -3,20 +3,10 @@
 
 ![](https://64.media.tumblr.com/f3add64bef7ac5c3c42ae87a202d6100/2fec89860f4147bc-8f/s250x400/704f40c9d740b8ec357d75ebb5606f58f5421918.gifv)
 
-hey ! i am Aiden OR Ren (whatever you like the most !) . 17 y.o . sp46so1 evfl rluai mel-phleg .
+hey ! i am Aiden OR Ren . they / he . 17 y.o . sp46so1 evfl rluai mel-phleg . w2i DNC int
 
-i am nonbinary and i prefer they/he as my prns!
-i just threw here all the stamps i could find don't beat me up pls
-
-my fandoms are : mcyt (mainly uusmp , a bit lifesteal and moneysmp , i'm a newgen) . hannibal . danganronpa . aregect arg . disventure camp . south park . pjsk . mouthwashing . brokeback mountain . saw (movie) . dead plate (and other games from this studio) ... i also like bittersweet (poorly explained oc lore series by @jvrozx or AJ on Tik Tok)
-
-. i also know (but not in the fandom anymore for reasons) alnst , tadc , yttd , cookie run , omori , milgram , creepypasta , the walten files , mandela catalogue , dandy's world , squid game , phighting , the music freaks , countryhumans , stranger things . so if u ever wanna discuss that pls feel free ...
-
-i also want friends (wink wink)
-
-i already mentioned that but PLEASE tcoaal , tcc fans DNI (and ivantill fans who reduce them to fragile twink Till and buff alpha Ivan I HATE YOU)
-
-uhh and I'd say i'm pretty much chill and friendly but i can be shy/quiet sometimes .. if i don't like something i will tell you anyways yeah i can be pretty short tempered and easily annoyed
+fandoms : mcyt hannibal danganronpa aregect disventurecamp southpark pjsk mouthwashing brokebackmountain saw deadplate countryhumans crk
+omori creepypasta yttd dhmis rdr2 doawk
 
 also i'm will graham , ena shinonome and stan marsh irl
               
