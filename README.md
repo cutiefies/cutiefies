@@ -8,7 +8,7 @@ hey ! i am Aiden OR Ren . they / he . 17 y.o . sp46so1 evfl rluai mel-phleg . w2
 fandoms : mcyt hannibal danganronpa aregect disventurecamp southpark pjsk mouthwashing brokebackmountain saw deadplate countryhumans crk
 omori creepypasta yttd dhmis rdr2 doawk
 
-also i'm will graham , ena shinonome and stan marsh irl
+also i'm will graham , adam stanheight , ena shinonome and stan marsh irl
               
 ![](https://64.media.tumblr.com/2b1ce13c42fb400fbfa1d7bdb4840504/f003ef0b836ae4d5-f9/s100x200/c18f3bd768c583102ca051fad77c418139b71153.gifv)
 ![](https://64.media.tumblr.com/c4e71da4f94ceef8d45a6d9275b8a263/f003ef0b836ae4d5-c5/s100x200/ff419e81243dfddffd6a3021e17162db420bccd6.gifv)
