@@ -3,7 +3,7 @@
 
 ![](https://64.media.tumblr.com/f3add64bef7ac5c3c42ae87a202d6100/2fec89860f4147bc-8f/s250x400/704f40c9d740b8ec357d75ebb5606f58f5421918.gifv)
 
-hey ! i am Aiden OR Ren . they / he . 17 y.o . sp4sx61 evfl rluai mel-phleg . w2i DNC int
+hey ! i am Aiden OR Ren . they / he . 17 y.o . sp46so1 evfl rluai mel-phleg . w2i DNC int
 
 fandoms : mcyt hannibal danganronpa aregect disventurecamp southpark pjsk mouthwashing brokebackmountain saw deadplate countryhumans crk
 omori creepypasta yttd dhmis rdr2 doawk
