@@ -6,7 +6,7 @@
 hey ! i am Aiden OR Ren . they / he . 17 y.o . sp469 evfl rluai mel-phleg . w2i DNC int
 
 fandoms : mcyt hannibal danganronpa aregect disventurecamp southpark pjsk mouthwashing brokebackmountain saw deadplate countryhumans crk
-omori creepypasta yttd dhmis rdr2 doawk deltarune undertale
+omori creepypasta yttd dhmis rdr2 doawk deltarune undertale atsv
 
 also i'm will graham , adam stanheight , ena shinonome and stan marsh irl
               
