@@ -27,4 +27,4 @@ also i'm will graham , adam stanheight , ena shinonome and stan marsh irl
 ![](https://64.media.tumblr.com/9e9dfe31f2560e4444766eca325cb0a1/51292b580eb2b349-b2/s1280x1920/ffec68c9aec2f9244f7e5be227441efc4b88d37d.gifv)
 big ahh saps
 
-пачиму у тибя верете на аве
+почему у тебя верити на аватарке
